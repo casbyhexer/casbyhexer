@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on Tech projects
 - 📫 Email: cashexerbusiness@gmail.com
 - 😄 Pronouns: Him
-- ⚡ Fun fact: I'm technically a creative
+- ⚡ Fun fact: I'm technically creative
 
